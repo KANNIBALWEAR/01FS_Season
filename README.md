@@ -1,8 +1,8 @@
 # First Swipe - Kannibal Season
 
-# Promo Video Series
+## Promo Video Series
 
-## Video FS/REC//01: Trackthreat
+### Video FS/REC//01: Trackthreat
 
 Underground garage, low to the ground perspective from Osmo Pocket. There is an object lying down on the floor nearby Osmo, it slowly lowers to reveal a black back Kannibal branding somehow included in it (code?). In the background there is an anyonymous techwear ops invdividual. He is lying on the floor, heavy breathing, he selects something on the phone that is next to him on the pavement. 
 
