@@ -2,7 +2,7 @@
 
 > Operation initiated. Kannibal Wear in deployment. Await further instructions.
 
-Premiere of the first wearable stealth profile techwear accessories focused on technology usage enhancement and optimization.
+Premiere of the first wearable stealth profile techwear accessories focused on technology usage optimization and carry enhancement.
 
 ## Promo Video Series
 
