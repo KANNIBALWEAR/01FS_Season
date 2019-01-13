@@ -1,4 +1,4 @@
-# FS_Season
+# First Swipe - Kannibal Season
 
 # Promo Video Series
 
