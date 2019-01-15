@@ -2,7 +2,9 @@
 
 > Operation initiated. Kannibal Wear in deployment. Await further instructions.
 
-Premiere of the first wearable stealth profile techwear accessories focused on technology usage optimization and carry enhancement.
+Premiere of the first wearable stealth profile techwear accessories focused on technology usage optimization and carry enhancement. 
+
+> Kannibal origin lies deeply in minimalistic and stealth approach.
 
 ## Promo Video Series
 
@@ -16,4 +18,4 @@ Camera swaps to the top down view, contrasty light. Black plastic wrapped packag
 
 View swaps to hacker swiping the package with a device and take out the item inside. It's a Kannibal accessory. Fresh wear upgrade/enhancement. Hacker preps the accessory and put it on. Visuals flicker with the name of the accessory and codename. Kannibal logo appears briefly.
 
-Welcome the First Swipe.
+Welcome to the First Swipe.
