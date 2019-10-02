@@ -1,3 +1,5 @@
+[Season Cover]
+
 # First Swipe - Kannibal Season
 
 > Operation initiated. Kannibal Wear in deployment. Await further instructions.
