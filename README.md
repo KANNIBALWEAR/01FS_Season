@@ -1,6 +1,6 @@
 [Season Cover]
 
-# First Swipe - Kannibal Season
+# First Swipe - Kannibal Season (2nd Season) Time Destination: 2021
 
 > Operation initiated. Kannibal Wear in deployment. Await further instructions.
 
