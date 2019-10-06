@@ -11,6 +11,7 @@ Premiere of the first wearable stealth profile techwear accessories focused on t
 ## Promo Video Series
 
 ### Video FS/REC//01: Trackthreat
+x
 
 Underground garage, dimmed neon lights, low to the ground perspective from Osmo Pocket. There is an object lying down on the floor nearby Osmo, it slowly lowers to reveal a black back Kannibal branding somehow included in it (code?). In the background there is an anyonymous techwear ops invdividual. He is lying on the floor, heavy breathing, he selects something on the phone that is next to him on the pavement. 
 
